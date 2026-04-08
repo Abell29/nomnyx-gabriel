@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/inicio/","dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/inicio/","tags":["gardenEntry"],"dg-note-properties":{}}
 ---
 
 # Hub de Personagens
