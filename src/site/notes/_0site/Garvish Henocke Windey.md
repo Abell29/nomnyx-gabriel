@@ -20,7 +20,7 @@ Bem-vindo ao compêndio de Garvish. Escolha uma das categorias abaixo para explo
 ### 🎲 Ficha e Habilidades
 * [[Nomnÿx/🩷Garvish Henocke Windey/Ficha/Ficha\|Ficha]]
 * **Feitiços:** [[Nomnÿx/🩷Garvish Henocke Windey/Ficha/Feitiços/Feitiços\|Feitiços]] | [[Nomnÿx/🩷Garvish Henocke Windey/Ficha/Feitiços/Ideias\|Ideias]]
-* **Herança Trovare:** [[Nomnÿx/🩷Garvish Henocke Windey/Herança Trovare/Nomnÿx Inerente\|Nomnÿx Inerente]]]
+* **Herança Trovare:** [[Nomnÿx/🩷Garvish Henocke Windey/Herança Trovare/Nomnÿx Inerente\|Nomnÿx Inerente]]
 - **Adepto:** [[Nomnÿx/🩷Garvish Henocke Windey/Ficha/Benção de Calida'e\|Benção de Calida'e]]
 
 ---
