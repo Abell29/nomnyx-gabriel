@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/nomnyx/garvish-henocke-windey/os-henocke/ancestrais/henocke-cadmus/dagerth-henocke-cadmus/","dg-note-properties":{}}
 ---
 
+---
 ![Dagerth Henocke Cadmus.jpg](/img/user/_Assets/Dagerth%20Henocke%20Cadmus.jpg)
 ## Dagerth Henocke Cadmus 
 _Significado: Navalha, fio, lâmina._
