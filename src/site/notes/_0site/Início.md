@@ -15,5 +15,5 @@ Escolha um dos núcleos abaixo para acessar a lore, anotações e conexões de c
 * [[_0site/Vorhaz Rarok\|Vorhaz Rarok]]
 
 ### Lore & Extras
-* [[_0site/outros personagens\|outros personagens]]
-* [[_0site/outras familias e histórias\|outras familias e histórias]]
+* [[_0site/Outros Personagens\|Outros Personagens]]
+* [[_0site/Outras Famílias e Histórias\|Outras Famílias e Histórias]]
