@@ -26,7 +26,7 @@ Bem-vindo ao compêndio de Garvish. Escolha uma das categorias abaixo para explo
 ---
 
 ## 🩸 Linhagens Sanguíneas
-***Visualização:*** Infelizmente a imagem é muito pesada. Será anexada em outro lugar.
+***Visualização:*** [[_0site/Árvore Genealógica do Garvish\|Árvore Genealógica do Garvish]]
 
 ### Os Henocke
 * **Geral:** [[Nomnÿx/🩷Garvish Henocke Windey/Os Henocke/Sobre\|Sobre]] | [[Nomnÿx/🩷Garvish Henocke Windey/Os Henocke/Legado/Contrato Primordial de Ascensão\|Contrato Primordial de Ascensão]] | [[Nomnÿx/🩷Garvish Henocke Windey/Os Henocke/Legado/Herança do Nome\|Herança do Nome]] | [[Nomnÿx/🩷Garvish Henocke Windey/Os Henocke/Legado/Pesquisas\|Pesquisas]]
