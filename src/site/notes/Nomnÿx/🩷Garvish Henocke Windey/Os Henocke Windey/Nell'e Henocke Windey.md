@@ -20,7 +20,7 @@
 
 - Tipo sanguíneo: A+&ᛞΨ
 
-- Sexo biológico: Mulher Cis
+- Sexo biológico: Mulher 
 
 - Orientação sexual: Bissexual
 
