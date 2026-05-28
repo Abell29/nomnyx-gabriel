@@ -82,7 +82,7 @@ Foi Avra, com sua precisão e falta de rodeios, quem explicou o lado técnico, e
 
 Mas o golpe final, o que realmente fraturou a confiança de Garvish, foi quando explicaram a quinta etapa do ritual: O Sacrifício.
 
-Garvish descobriu ali, olhando para os pais, que as capacidades mágicas de Calida'e de seus seis irmãos foram seladas e resumidas a meros traços físicos antes mesmo de ele ser gerado. Os seis irmãos que Dervon e Avra amavam foram usados como degraus mágicos. Ele percebeu que não nasceu apenas como um filho, mas como o produto final e calculado de uma equação ritualística impiedosa, desenhada para criar um deus político. 
+Garvish descobriu ali, olhando para os pais, que as capacidades mágicas de Calida'e de seus seis irmãos foram seladas e resumidas a meros traços físicos antes mesmo de ele ser gerado. Os seis irmãos que Dervon e Avra amavam foram usados como degraus para aumentar o seu potencial. Ele percebeu que não nasceu apenas como um filho, mas como um produto; calculado de uma equação ritualística impiedosa, desenhada para criar um deus político. 
 
 Logo após essa descoberta, Garvish foi esmagado pela culpa. Ele olhava para seus seis irmãos mais velhos — Sula'e, Noleth, Mádi'e, Viech'e, Tael e Nell'e — e não conseguia parar de pensar que o potencial de Calida'e deles havia sido roubado. É verdade que eles saíram "ilesos" na prática, já que a descendência de Avra era forte o suficiente para suprir a perda da Herança mágica vinda de Dervon. Mas a crise existencial o consumiu: "se não fosse pela ambição do ritual, será que meus irmãos existiriam? Eu existiria?" A conclusão lógica era que não, e isso o aterrorizou.
 
