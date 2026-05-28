@@ -91,7 +91,7 @@ Para piorar, ele estava sufocado com essa informação. O ritual é considerado 
 
 - **Conforto:**
 Seu conforto é compôr músicas. Quando compõe, Garvish se perde em seus pensamentos e se encontra de verdade, mesmo que saia desse “transe” ao voltar à realidade. Toda a reflexão feita para produzir uma letra acaba por tranquilizar e “iluminar” a sua visão, o guiando para caminhos que acredita serem corretos.
-Além disso, brincar no campo com Nidon, enquanto o vento bate no seu rosto o ajuda a relaxar. Em alguns casos, também procura a companhia de seus familiares, principalmente Nell’e, com quem divide muitos pensamentos.
+Além disso, brincar no campo com Nidon, enquanto o vento bate no seu rosto o ajuda a relaxar. Em alguns casos, também procura a companhia de seus familiares, principalmente Nell’e e Yamani'e, com quem divide muitos pensamentos.
 
 - **Condições:**
 Vitiligo.
