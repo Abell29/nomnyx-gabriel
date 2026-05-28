@@ -30,21 +30,21 @@ Branco com certa "corrente elétrica" azul logo quando sai, mas muda para uma ch
 Cominum, Mahomoriano e Hertariano.
 
 - **Passatempos:**
-Canta e toca guitarra na [[Nomnÿx/outras familias e histórias/★Celestiss\|★Celestiss]], pratica skate, com skate normal ou com sua vassoura modificada, e "Basquete Bruxo". Além disso, mantém uma rotina de meditação e treino corporal extenso de força, mobilidade e equilíbrio.
+Canta e toca guitarra na [[Nomnÿx/outras familias e histórias/★Celestiss\|★Celestiss]], pratica skate, com skate normal ou com sua vassoura modificada, e "Basquete Bruxo". Além disso, mantém uma rotina de meditação e treino corporal extenso.
 
 - **Comida favorita:**
 Seu prato favorito é “Lenço Melado”, uma massa produzida com essência de gosma/slime e recheada. A massa é fina, macia e bem branca, parecendo um lenço, porém toma a mesma coloração do slime em certas partes, parecendo que esta melado, daí o nome. Além disso, ganha propriedade elástica, ou fica borrachuda caso passe do ponto, e tem um sabor aproximado ao de requeijão, levemente ácido. O recheio varia podendo ser salgado ou doce. Geralmente Garvish prefere o salgado, repetindo os mesmo ingredientes: Cebola, milho, maionese, bacon picado e carne de boi-montanhoso moída, mais especificamente o corte do cupim.
 
 - **Comida que detesta:**
-Com seus 8 anos de idade, viajou para a chácara da família, com seus pais, a Viech’e, o Tael e a Nell’e. Não demorou muito para fazer amizade com os vizinhos, nascidos na região. Durante o aniversário de Viech’e, receberam um presente de Drina, uma das moradoras locais. Era um prato típico da região, um líquido pastoso muito colorido. Segundo Avra, sua mãe, o prato era um dos melhores que já provou, opinião completamente contrária à de Garvish, que vomitou logo após ingerir a primeira colherada. Depois de perguntar do que aquilo era feito, descobriu que a receita do prato consistia em vísceras de porco ou de bode, besouros-tinteiro, ervas e seiva de Guari, uma árvore conhecida por suas possíveis propriedades curativas, tudo amassado e misturado com um pilão. Após explicar como era feito e o que era utilizado no preparo, disse que foi um dos pratos que mais comeu durante suas visitas a chácara enquanto as gravidezes, já que Abobra Coletche, o nome do prato, significa gravidez saudável numa tradução livre.
+Com seus 8 anos de idade, viajou para a chácara da família, com seus pais, a Viech’e, o Tael e a Nell’e. Não demorou muito para fazer amizade com os vizinhos, nascidos na região. Durante o aniversário de Viech’e, receberam um presente de Drina, uma das moradoras locais. Era um prato típico da região, um líquido pastoso muito colorido. Segundo Avra, sua mãe, o prato era um dos melhores que já provou, opinião completamente contrária à de Garvish, que vomitou logo após ingerir a primeira colherada. Depois de perguntar do que aquilo era feito, descobriu que a receita do prato consistia em vísceras de porco ou de bode, besouros-tinteiro, ervas e seiva de Guari, uma árvore conhecida por suas possíveis propriedades curativas, tudo amassado e misturado com um pilão. Após explicar como era feito e o que era utilizado no preparo, disse que foi um dos pratos que mais comeu durante suas visitas a chácara enquanto as gravidezes, já que Abobra Coletche, o nome do prato, significa "gravidez saudável" numa tradução livre.
 
 - **Cores favoritas:**
-Rosa e preto.
+Rosa, roxo, laranja e preto.
 
-**- Mídias favoritas:**
+- **Mídias favoritas:**
 Gosta muito de hip hop alternativo, neo soul, jazz, rap e R&B. Assiste alguns poucos filmes de comédia, drama e ação, mas se empolga em qualquer um que realmente aflore suas emoções, qualquer uma delas.
 
-**- No que é confiante:**
+- **No que é confiante:**
 Controle de magia e de seu corpo num geral, na sua voz como cantor e em sua convicção.
 
 - **Inseguranças:**
@@ -54,19 +54,7 @@ Garvish é muito hábil em interações sociais e em navegar círculos de intere
 Quando mais novo, na faixa de seus 4 anos, não gostava de espelhos ou de locais que pudessem refletir sua imagem. Jurava que seu reflexo não imitava seus movimentos como deveria, fazendo o que bem entendia. Relatou ser assustado ou caçoado pelo seu reflexo diversas vezes, que podia desaparecer ou até mesmo se transformar em outras pessoas, mesmo que não houvesse sinais de magia. Um dia acordou e, no seu limite, decidiu que iria enfrentar aquilo, e foi o que fez. Garvish parou em frente ao espelho de seu banheiro e começou a discutir com o seu reflexo, que nunca esteve tão normal. Disse que, independente de quaisquer gracinhas, iria agir normalmente, pois ele é apenas um reflexo e não pode sair de espelhos, ou já teria feito se pudesse. Não recebeu resposta, porém não foi importunado após isso.
 
 - **Traumas:**
-Durante uma sessão de treino, ele decidiu tentar um feitiço particularmente complexo e instável, apesar dos avisos de Kovy sobre o perigo. Garvish, em sua confiança, simplesmente ignorou a advertência.
 
-Ele conjurou. Por um instante, funcionou. No segundo seguinte, o controle se foi.
-
-A magia não explodiu para fora; ela implodiu. O poder bruto se voltou contra seu próprio corpo. Ele sentiu uma força destrutiva começar a consumi-lo por dentro, percebendo em pânico que iria morrer. E, claro, se ele morresse, Kovy morreria com ele.
-
-Foi aí que Kovy agiu. Kovy sabia que não podia parar a magia de Garvish, mas podia redirecioná-la. Ele usou sua própria essência espiritual e se jogou "na frente" do fluxo de poder dentro de Garvish.
-
-Garvish pôde sentir a agonia espiritual de seu irmão-gêmeo sendo "perfurado" e "queimado" pela sua própria magia descontrolada. Kovy absorveu o impacto, quase se dissipando no processo, mas conseguiu desviar a magia o suficiente para salvar a vida de ambos.
-
-Garvish desmaiou, não pelo ferimento, mas pelo choque de quase ter assassinado seu irmão e a si por pura arrogância.
-
-Com isso, ele percebeu que seu poder não é uma ferramenta, mas sim uma fera. Sua confiança vinha de achar que tinha controle. O trauma lhe ensinou que ele não tem.  Sua arrogância quase criou uma tragédia.
 
 - **Conforto:**
 Seu conforto é compôr músicas. Quando compõe, Garvish se perde em seus pensamentos e se encontra de verdade, mesmo que saia desse “transe” ao voltar à realidade. Toda a reflexão feita para produzir uma letra acaba por tranquilizar e “iluminar” a sua visão, o guiando para caminhos que acredita serem corretos.

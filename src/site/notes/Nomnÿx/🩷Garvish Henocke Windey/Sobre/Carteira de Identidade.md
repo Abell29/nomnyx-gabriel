@@ -15,4 +15,4 @@ Identidade Profissional: ——
 Carteira de Habilitação: ★
 Cartão de Saúde: ★
 Tipo Sanguíneo e Fator Rh: A+&ᛞΨ
-Observação: ——
+Observação: Entidade composta de pura magia e com personalidade própria habita seu corpo; foi nomeada de Kovy e é considerada parte do indivíduo para qualquer questão jurídica.

@@ -4,7 +4,7 @@
 
 ![Mádi’e Henocke Windey-1.png](/img/user/_Assets/M%C3%A1di%E2%80%99e%20Henocke%20Windey-1.png)
 ![Mádi’e Henocke Windey.png](/img/user/_Assets/M%C3%A1di%E2%80%99e%20Henocke%20Windey.png)
-Mádi’e Henocke Windey, gethro de 25 anos.
+Mádi’e Henocke Windey, sidhe de 25 anos.
 
 Mádi’e Henocke Windey
 -Magia Principal: Trilha.

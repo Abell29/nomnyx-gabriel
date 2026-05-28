@@ -40,7 +40,7 @@
 
 - Passatempo: Nell'e canta, toca violão, guitarra e baixo, mas sua paixão mesmo é pela bateria, instrumento ao qual é responsável na banda [[Nomnÿx/outras familias e histórias/★Celestiss\|★Celestiss]]. Também joga muito bem vôlei bruxo em todas as funções, sendo um ótimo Às, mas seu prime é no ataque.
 
-- Mídias favoritas: Super-choque, ATLA, X-Men e HxH.
+- Mídias favoritas: Super-choque, ATLA, X-Men e HxH. Na música ela gosta muito de Heavy metal.
 
 - Cores favoritas: Azul, rosa, vermelho e, especificamente, prata.
 

@@ -18,7 +18,7 @@ Raigōkin - é o nome de uma ave mágica e significa "veloz como um raio". Esse 
 - **Data de nascimento:**
 12/02/1250.
 - **Idade:**
-17.
+18.
 - **Tipo sanguíneo:**
 B-.
 - **Signo:**

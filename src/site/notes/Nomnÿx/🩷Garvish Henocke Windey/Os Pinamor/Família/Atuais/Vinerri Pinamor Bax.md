@@ -7,7 +7,7 @@ Vinerri Pinamor Bax.
 Informações Gerais
 -Magia principal: Conversão.
 -Personalidade: Extrovertida e animada, adora estar próximo das pessoas e se expressa através de toque físico.
--Data de nascimento: 27/12/??.
+-Data de nascimento: 27/12/1249.
 -Idade: (17)
 -Tipo sanguíneo: O+
 -Signo: Capricórnio 

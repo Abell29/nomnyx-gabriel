@@ -3,7 +3,7 @@
 ---
 
 ![68800c98a08fae54bedc2feed323ab3d.jpg](/img/user/_Assets/68800c98a08fae54bedc2feed323ab3d.jpg)
-Tael Henocke Windey,  gethro de 21 anos.
+Tael Henocke Windey,  gethro de 21 anos. Semi adepto
 
 Tael Henocke Windey
 Informações Gerais
