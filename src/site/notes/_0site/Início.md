@@ -17,3 +17,6 @@ Escolha um dos núcleos abaixo para acessar a lore, anotações e conexões de c
 ### Lore & Extras
 * [[_0site/Outros Personagens\|Outros Personagens]]
 * [[_0site/Outras Famílias e Histórias\|Outras Famílias e Histórias]]
+
+### Desenvolvimento Durante Os Anos
+[[_0site/De 1267 até 1272\|De 1267 até 1272]]
