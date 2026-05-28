@@ -18,5 +18,5 @@ Escolha um dos núcleos abaixo para acessar a lore, anotações e conexões de c
 * [[_0site/Outros Personagens\|Outros Personagens]]
 * [[_0site/Outras Famílias e Histórias\|Outras Famílias e Histórias]]
 
-### Desenvolvimento Durante Os Anos
+### Conexões
 [[_0site/De 1267 até 1272\|De 1267 até 1272]]
