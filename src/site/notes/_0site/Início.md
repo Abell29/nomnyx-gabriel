@@ -9,6 +9,7 @@ Escolha um dos núcleos abaixo para acessar a lore, anotações e conexões de c
 ### Personagens Principais
 * [[_0site/Ashagoth Nif'ru Barkel\|Ashagoth Nif'ru Barkel]]
 * [[_0site/Garvish Henocke Windey\|Garvish Henocke Windey]]
+* [[_0site/Kovy Henocke Windey\|Kovy Henocke Windey]]
 * [[_0site/Phisari Akane\|Phisari Akane]]
 * [[_0site/Shotuyan Raigōkin Küchgan\|Shotuyan Raigōkin Küchgan]]
 * [[_0site/Taloyá Taidinok Kosaniwi\|Taloyá Taidinok Kosaniwi]]

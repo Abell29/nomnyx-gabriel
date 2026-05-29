@@ -271,7 +271,7 @@ Ganha +1 em DT e testes desse tipo de feitiço, além deles se tornarem avançad
 
 - Restrição Primordial
 _Nível 5_
-xxx
+Garvish se torna incapaz de produzir mana por si próprio, podendo utilizar a mana que sobra em seu corpo ou a que rouba de outros seres mágicos.
 
 **MOCHILA**
 _Capacidade de Carga: 15_
