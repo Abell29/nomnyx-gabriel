@@ -1,5 +1,0 @@
----
-{"dg-publish":true,"permalink":"/nomnyx/garvish-henocke-windey/sobre/personalidade/","dg-note-properties":{}}
----
-
-Garvish tem muito orgulho de si, mesmo sabendo que extrapola o limite do saudável. Esse traço fica muito visível em competições, onde suas emoções afloram bastante. Mas, independente de como se sinta, mantém o respeito da rivalidade com seus companheiros e adversários. Age de maneira indiferente com grande parte das pessoas que não conhece, que não chega a ser uma rispidez, apenas uma noção séria de intimidade. Entretanto, é um garoto muito divertido e alegre, além de muito justo. Ademais, repara e se preocupa bastante com as pessoas ao seu redor. Por esses motivos, as pessoas acabam se juntando à sua volta naturalmente, formando amigos e colegas que nem esperava conhecer. Um detalhe: algumas pessoas que se unem ao seu ciclo de amizades não reparam em seu caráter ou sua maneira de agir, mas sim em suas vestes e cabelos sempre estilosos, além das regalias que vem de estar próximo à ele. Isso, porém, não é algo que passa despercebido à ele, mas ele sabe jogar o jogo.
