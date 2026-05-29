@@ -13,7 +13,7 @@ Bem-vindo ao compêndio de Garvish. Escolha uma das categorias abaixo para explo
 * [[Nomnÿx/🩷Garvish Henocke Windey/Sobre/Carteira de Identidade\|Carteira de Identidade]]
 * [[Nomnÿx/🩷Garvish Henocke Windey/Sobre/Informações Gerais\|Informações Gerais]]
 * [[Nomnÿx/🩷Garvish Henocke Windey/Sobre/História\|História]]
-* [[Nomnÿx/🩷Garvish Henocke Windey/Sobre/Personalidade\|Personalidade]]
+* [[Personalidade\|Personalidade]]
 * [[Nomnÿx/🩷Garvish Henocke Windey/Sobre/Relações\|Relações]]
 * **Aparência:** [[Nomnÿx/🩷Garvish Henocke Windey/Sobre/Aparência/Garvish Henocke Windey\|Garvish Henocke Windey]], [[Nomnÿx/🩷Garvish Henocke Windey/Sobre/Aparência/Adeptal\|Adeptal]], [[Nomnÿx/🩷Garvish Henocke Windey/Sobre/Aparência/Normal\|Normal]]
 

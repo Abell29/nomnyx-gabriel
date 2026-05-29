@@ -2,6 +2,8 @@
 {"dg-publish":true,"permalink":"/nomnyx/garvish-henocke-windey/sobre/informacoes-gerais/","dg-note-properties":{}}
 ---
 
+## Informações Gerais
+### Básicas
 - **Data de Nascimento:**
 25/08/1258.
 
@@ -10,6 +12,21 @@
 
 - **Signo:**
 Leão.
+
+- **Data de Falecimento:** 
+xx/xx/xxxx
+
+- Altura: 
+Durante o primeiro ano: 1,82m | Durante o terceiro ano: 1,92m.
+
+- **Tipo Sanguíneo e Fator Rh:**
+A+&ᛞΨ.
+
+- **Raça:**
+Adepto de Calida'e e Sidhe.
+
+- **Tipo de Magia Principal:**
+Primordial, Manejo, Conversão.
 
 - **Sexo:**
 Nascido do sexo masculino, mas agora transita entre os dois.
@@ -20,30 +37,43 @@ Gênero Fluido.
 - **Orientação Sexual:**
 Bissexual.
 
-- **Tipo Sanguíneo e Fator Rh:**
-A+&ᛞΨ.
-
-- **Cor da Magia:**
-Branco com certa "corrente elétrica" azul logo quando sai, mas muda para uma chama colorida. A cor da chama é essencialmente rosa, mas com leves tons laranjas, vermelhos e azuis.
-
 - **Idiomas:**
 Cominum, Mahomoriano e Hertariano.
 
+- **Trabalho:** 
+Trabalha na banda [[Nomnÿx/outras familias e histórias/★Celestiss\|★Celestiss]] como cantor, guitarrista secundário e compositor.
+
+- **Ondes Estuda/Estudou:** 
+Colégio Morgana Le Fay.
+
+- **Condições:**
+Sofre de um fluxo anormal de mana por conta de suas duas heranças mágicas poderosíssimas. Isso poderia causar algum tipo de distúrbio, mas junto ao seu nascimento, Kovy — que considera um gêmeo siamês — foi criado pela Vontade Primordial para conter esse acúmulo enorme de Nomnÿx. Também tem vitiligo (apesar de não saber, também é causado por toda sua situação mágica).
+
+- **Alergias:**
+Tem alergia de contato ao ler livros que utilizam da tinta dos Besouros-tinteiro, animais fáceis de "ordenhar" para adquirir tinta. Hoje é incomum pois existem processos ainda mais fáceis, porém muitos livros antigos utilizam da tinta por ser barata.
+
+- **Cor da Magia:**
+Branco com certa "corrente elétrica" azul logo quando sai, mas muda para uma chama colorida. A cor da chama é essencialmente rosa, mas com leves tons laranjas, vermelhos e azuis.
+### Comportamentais
+- **Personalidade:**
+Garvish é, na maior parte do tempo, uma força magnética impossível de ignorar. Animado, empenhado, agitado e genuinamente empático, ele sempre chama atenção por onde passa, causando boas impressões com extrema naturalidade. Ele tem muito orgulho de si e exala uma confiança alegre e respeitosa, o que atrai as pessoas para o seu redor de forma orgânica. É o tipo de garoto acolhedor que nota quando alguém está deslocado e sabe exatamente como incluir essa pessoa na roda com carisma. 
+No entanto está sempre desconfiado, é muito difícil pôr completamente de lado o questionamento de se suas relações são superficiais ou não.
+
 - **Passatempos:**
 Canta e toca guitarra na [[Nomnÿx/outras familias e histórias/★Celestiss\|★Celestiss]], pratica skate, com skate normal ou com sua vassoura modificada, e "Basquete Bruxo". Além disso, mantém uma rotina de meditação e treino corporal extenso.
+
+- **Mídias favoritas:**
+Gosta muito de hip hop alternativo, neo soul, jazz, rap e R&B. Assiste alguns poucos filmes de comédia, drama e ação, mas se empolga em qualquer um que realmente aflore suas emoções, qualquer uma delas.
+
+- **Cores favoritas:**
+Rosa, roxo, laranja e preto.
 
 - **Comida favorita:**
 Seu prato favorito é “Lenço Melado”, uma massa produzida com essência de gosma/slime e recheada. A massa é fina, macia e bem branca, parecendo um lenço, porém toma a mesma coloração do slime em certas partes, parecendo que esta melado, daí o nome. Além disso, ganha propriedade elástica, ou fica borrachuda caso passe do ponto, e tem um sabor aproximado ao de requeijão, levemente ácido. O recheio varia podendo ser salgado ou doce. Geralmente Garvish prefere o salgado, repetindo os mesmo ingredientes: Cebola, milho, maionese, bacon picado e carne de boi-montanhoso moída, mais especificamente o corte do cupim.
 
 - **Comida que detesta:**
 Com seus 8 anos de idade, viajou para a chácara da família, com seus pais, a Viech’e, o Tael e a Nell’e. Não demorou muito para fazer amizade com os vizinhos, nascidos na região. Durante o aniversário de Viech’e, receberam um presente de Drina, uma das moradoras locais. Era um prato típico da região, um líquido pastoso muito colorido. Segundo Avra, sua mãe, o prato era um dos melhores que já provou, opinião completamente contrária à de Garvish, que vomitou logo após ingerir a primeira colherada. Depois de perguntar do que aquilo era feito, descobriu que a receita do prato consistia em vísceras de porco ou de bode, besouros-tinteiro, ervas e seiva de Guari, uma árvore conhecida por suas possíveis propriedades curativas, tudo amassado e misturado com um pilão. Após explicar como era feito e o que era utilizado no preparo, disse que foi um dos pratos que mais comeu durante suas visitas a chácara enquanto as gravidezes, já que Abobra Coletche, o nome do prato, significa "gravidez saudável" numa tradução livre.
-
-- **Cores favoritas:**
-Rosa, roxo, laranja e preto.
-
-- **Mídias favoritas:**
-Gosta muito de hip hop alternativo, neo soul, jazz, rap e R&B. Assiste alguns poucos filmes de comédia, drama e ação, mas se empolga em qualquer um que realmente aflore suas emoções, qualquer uma delas.
-
+### Psiquê
 - **No que é confiante:**
 Controle de magia e de seu corpo num geral, na sua voz como cantor e em sua convicção.
 
@@ -88,10 +118,7 @@ Logo após essa descoberta, Garvish foi esmagado pela culpa. Ele olhava para seu
 
 Para piorar, ele estava sufocado com essa informação. O ritual é considerado informação da biblioteca da família, essa que possui um sistema de segurança arcano absoluto. As informações são censuradas e protegidas por uma magia de contrato. Mesmo que uma exceção tenha sido aberta para que ele descobrisse a verdade, o contrato o impedia fisicamente de "vazar os dados". Ele só conseguia falar sobre o ritual com aqueles que têm acesso aos níveis mais altos da biblioteca; o que não servia de nada naquele momento.
 
-
 - **Conforto:**
 Seu conforto é compôr músicas. Quando compõe, Garvish se perde em seus pensamentos e se encontra de verdade, mesmo que saia desse “transe” ao voltar à realidade. Toda a reflexão feita para produzir uma letra acaba por tranquilizar e “iluminar” a sua visão, o guiando para caminhos que acredita serem corretos.
 Além disso, brincar no campo com Nidon, enquanto o vento bate no seu rosto o ajuda a relaxar. Em alguns casos, também procura a companhia de seus familiares, principalmente Nell’e e Yamani'e, com quem divide muitos pensamentos.
 
-- **Condições:**
-Vitiligo.

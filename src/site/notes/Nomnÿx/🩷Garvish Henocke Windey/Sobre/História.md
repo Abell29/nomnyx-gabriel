@@ -2,7 +2,6 @@
 {"dg-publish":true,"permalink":"/nomnyx/garvish-henocke-windey/sobre/historia/","dg-note-properties":{}}
 ---
 
-
 ### O Desabafo Mudo e o Gatilho da Puberdade
 
 Sufocado, Garvish procurou seu namorado na época, Paracelso Lestrange. Ele queria desesperadamente desabafar sobre o que a família havia feito, mas a magia da biblioteca travava sua voz. Tudo o que restou foi ficar abraçado ao namorado, chorando em silêncio.
