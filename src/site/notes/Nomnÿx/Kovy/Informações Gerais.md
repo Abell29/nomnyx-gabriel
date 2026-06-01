@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/nomnyx/kovy/informacoes-gerais/","dg-note-properties":{}}
 ---
 
-## **Informações Gerais - Kovy**
+## **Informações Gerais**
 
 ### **Básicas**
 
