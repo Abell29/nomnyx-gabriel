@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/nomnyx/garvish-henocke-windey/os-henocke/legado/contrato-primordial-de-ascensao-venusiano/","dg-note-properties":{}}
 ---
 
-Teorizado inicialmente por Vian'e Henocke, refinado por sua filha Kiran'e e concluído magistralmente por Cindel Henocke, este ritual é o segredo mais obscuro e poderoso guardado na biblioteca da família. O contrato é realizado com a participação de nove indivíduos — dois pais e sete filhos (seis deles usados como catalisadores passivos). O ritual consiste em cinco etapas indissociáveis, desenhadas para extrair o máximo do catalisador emocional.
+Teorizado inicialmente por [[Nomnÿx/🩷Garvish Henocke Windey/Os Henocke/Ancestrais/Vian'e Henocke\|Vian'e Henocke]], refinado por sua filha [[Nomnÿx/🩷Garvish Henocke Windey/Os Henocke/Ancestrais/Kiran'e Henocke\|Kiran'e Henocke]] e concluído magistralmente por [[Nomnÿx/🩷Garvish Henocke Windey/Os Henocke/Ancestrais/Cindel Henocke\|Cindel Henocke]], este ritual é o segredo mais obscuro e poderoso guardado na biblioteca da família. O contrato é realizado com a participação de nove indivíduos — dois pais e sete filhos (seis deles usados como catalisadores passivos). O ritual consiste em cinco etapas indissociáveis, desenhadas para extrair o máximo do catalisador emocional.
 *É importante lembrar que as 3 Etapas iniciais devem ser feitas antes da gestação do primeiro filho; assim como cada momento de copulação deve ser feito entre os dias 20 de Janeiro e 20 de Março, seguindo a 4ª Etapa.*
 
 > **1. Juramento:** A “Doação” contínua de Nomnÿx por parte dos pais. A partir do momento que firmam o contrato através do sangue, seu uso livre de Nomnÿx é reduzido em 80%. A magia é sugada para "alimentar" a matriz do feitiço até que o sétimo filho nasça. O Nomnÿx enviado a partir do juramento firma o primeiro dos Pilares. Neste período, os pais iniciam o consumo de poções de hipersensibilidade, que quebram as barreiras do ego e intensificam cada emoção a níveis quase insuportáveis.
@@ -32,6 +32,6 @@ Os Acossadores Soturnos são uma espécie rara e antiquíssima de predadores má
 
 
 **Habilidades e Inteligência:**
-- **Predador Psicológico:** O Acossador é capaz de falar. Ele possui cordas vocais adaptadas para imitar perfeitamente o idioma de suas presas. Durante o combate, ele não apenas ruge; ele conversa, zomba e descreve o que vai fazer com a vítima para induzir o desespero.
+- **Predador Psicológico:** O Acossador é capaz de falar. Ele possui cordas vocais adaptadas para imitar perfeitamente o idioma de suas presas. Durante o combate, ele não apenas ruge; ele conversa, zomba e descreve o que vai fazer com a vítima para induzir o desespero; utilizando, também, de poderes psíquicos para acessar os seus maiores medos.
     
 - **Absorção de Tormento:** Qualquer emoção negativa intensa (medo, raiva, desespero) liberada nas proximidades atua como uma injeção de adrenalina e Nomnÿx para a criatura. Se a presa sente dor e se apavora com o chicote, a fera fica mais rápida, mais forte e suas feridas se regeneram.

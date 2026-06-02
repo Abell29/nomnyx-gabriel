@@ -7,7 +7,7 @@ Viech'e Henocke Windey
 Informações Gerais
 -Magia Principal: Reforço. Reforço pra caralho.
 -Personalidade: Alta e perigosamente confiante, sempre enfrentando seus medos, antes mesmo que eles surjam. 
--Data de nascimento: 02/08/??.
+-Data de nascimento: 02/12/1252.
 -Idade: (15)
 -Tipo sanguíneo: A+
 -Signo: Leão 

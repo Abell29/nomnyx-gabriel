@@ -9,7 +9,7 @@ Mádi’e Henocke Windey, sidhe de 25 anos.
 Mádi’e Henocke Windey
 -Magia Principal: Trilha.
 -Personalidade: Animada, porém tímida, mas muito simpática e empática. Ela sempre tenta deixar tudo confortável pra todo mundo, o que a desgasta bastante, pois acaba se cobrando demais.
--Data de nascimento: 10/02/??.
+-Data de nascimento: 10/12/1249.
 -Idade: (18)
 -Tipo sanguíneo: A-
 -Signo: Aquário 

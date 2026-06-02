@@ -5,7 +5,7 @@
 ## Informações Gerais
 ### Básicas
 - **Data de Nascimento:**
-25/08/1258.
+25/08/1258, nasceu prematuro — apenas 7 meses de gestação — e sua mãe quase faleceu no processo.
 
 - **Idade:**
 9 anos em 1267 | 13/14 anos em 1272| 15/16 anos em 1274.
