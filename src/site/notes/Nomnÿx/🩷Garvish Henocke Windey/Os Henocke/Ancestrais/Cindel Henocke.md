@@ -8,7 +8,7 @@ _Significado: Brisa de renovação._
 Filho de Vian’e - Foi quem otimizou o cálculo para descentes adeptos e criou o Contrato Primordial de Ascensão.
 
 - **Aparência:**
-Cindel tinha cabelos castanhos e ondulados. Seus olhos transmitiam gentileza e sua cor era âmbar amarelado. Sua pele tinha muitas feridas de uma condição chamada psoríase, e tinha o tom bege acinzentado. Sua altura era de 1,74m.
+Cindel tinha cabelos castanho-avermelhados e ondulados. Seus olhos transmitiam gentileza e sua cor era âmbar amarelado. Sua pele tinha muitas feridas de uma condição chamada psoríase, e tinha o tom bege acinzentado. Sua altura era de 1,74m.
 
 - **Personalidade:**
 

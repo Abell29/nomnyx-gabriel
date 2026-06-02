@@ -6,15 +6,15 @@
 
 # Vian’e Henocke 
 _Significado: Vivaz._
-foi uma maga adepta muito importante para o melhor entendimento do catalisador *emoção,* estudando-o a fundo. Em meio a suas pesquisas pelo mundo, acabou descobrindo também sobre boa parte do funcionamento do Nomnyx relacionado aos adeptos, mas acabou não conseguindo elaborar uma tese completa sobre ele.
+foi uma maga adepta muito importante para o melhor entendimento do catalisador *emoção,* estudando-o a fundo. Em meio a suas pesquisas pelo mundo, acabou descobrindo também sobre boa parte do funcionamento do Nomnÿx relacionado aos adeptos, mas acabou não conseguindo elaborar uma tese completa sobre ele.
 
-Suas pesquisas foram motivadas por sua irmã, por Calida’e Venus e por si mesma. A primeira lhe incentivou indiretamente, pois Vian'e queria descobrir sobre o Nomnyx para tentar achar uma forma de transferir magia para um humano puro, ou apenas “ativar” o necessário para que esse humano produza magia; já Venus lhe incentivou diretamente, visto que era a deusa das emoções e usava ao máximo deste catalisador, tendo feitos inimagináveis com pouquíssimo gasto de mana pura; e, por último, decidiu se estudar pois era a cobaia perfeita, uma adepta.
+Suas pesquisas foram motivadas por sua irmã, por Calida’e Venus e por si mesma. A primeira lhe incentivou indiretamente, pois Vian'e queria descobrir sobre o Nomnÿx para tentar achar uma forma de transferir magia para um humano puro, ou apenas “ativar” o necessário para que esse humano produza magia; já Venus lhe incentivou diretamente, visto que era a deusa das emoções e usava ao máximo deste catalisador, tendo feitos inimagináveis com pouquíssimo gasto de mana pura; e, por último, decidiu se estudar pois era a cobaia perfeita, uma adepta.
 
 Os resultados foram:
 - Grandioso entendimento sobre catalisador Emoção.
-- Entendimento sobre o funcionamento de Nomnyx
+- Entendimento sobre o funcionamento de Nomnÿx
 - Cálculo (futuramente melhorado por seu filho) sobre as chances de descendentes adeptos.
-- Manipulação do Nomnyx em criaturas, criando uma nova espécie como seu experimento.
+- Manipulação do Nomnÿx em criaturas, criando uma nova espécie como seu experimento.
 
 # Sobre
 - **Aparência:**
@@ -30,10 +30,10 @@ Vian’e foi uma pessoa muito desastrada, tanto quanto animada. Trazia alegria p
 172 anos.
 
 - **Data de Falecimento:**
-01/02/????.
+01/02/982.
 
 - **Tipo sanguíneo:**
-AB+.
+AB+&Ψ.
 
 - **Sexo biológico:**
 Feminino.
@@ -45,13 +45,13 @@ Bissexual.
 Gêmeos. 
 
 - **Idiomas:**
-??.
+Cominum, .
 
 - **Trabalho:**
-Pesquisadora e estudiosa sobre os campos da potencialização da magia (como poções, adeptos e espíritos) e sua relação com as emoções como catalisador, além do estudo de Nomnyx para uma possível “ativação” de magia em humanos puros e aumento de chance para descendentes Adeptos.
+Pesquisadora e estudiosa sobre os campos da potencialização da magia (como poções, adeptos e espíritos) e sua relação com as emoções como catalisador, além do estudo de Nomnÿx para uma possível “ativação” de magia em humanos puros e aumento de chance para descendentes Adeptos.
 
 - **Passatempo:**
-Catalogar, domesticar e gerar possíveis novas raças, mágicas ou não.
+Gostava muito de assistir duelos, até mesmo participando de alguns em casos especiais. Estava sempre procurando fazer algo, não parando quieta em momento algum. O que mais ela fazia enquanto parada era catalogar e estudar a manipulação de Nomnÿx assim como animais mágicos, espíritos e como imitar ou burlar suas limitações.
 
 - **Comidas favoritas:**
 Um prato chamado Peito de Darin-Rosado. Darin-Rosado é um pássaro mágico muito parecido com uma manga, vivendo em mangueiras para se camuflar e se alimentar. Acontece que o prato é feito utilizando dessas mangas que se tornam mágicas por causa dos Darin que vivem ao redor. Neste prato, a “carne” da manga é grelhada, servida com queijo, alguns grãos, podendo ser feijões ou arroz, e verduras picadas.
@@ -64,6 +64,7 @@ Laranja pêssego e azul turquesa.
 
 - **Mídias favoritas:**
 Adorava ler contos de investigação e romance. Por muito tempo seu favorito foi sobre um detetive que investigava casos de um assassino em série, somente para descobrir que sua esposa era o assassino o tempo todo.
+
 - **No que é confiante:**
 Em suas habilidades físicas, mágicas e em seus conhecimentos.
 
@@ -74,8 +75,8 @@ Falar em público. Vian’e é muito tímida sem motivo e nunca conseguiu resolv
 Medo de fantasmas, teatros e piratas. Quando mais nova, se deparou com um fantasma dentro de um teatro. O fantasma, mesmo que falecido, ainda atuava seu papel de um pirata (bem estereotipado) com fidelidade e espantou a garotinha que invadiu o palco com o teatro vazio. Nunca mais se encontrou com algum fantasma e nem entrou em teatros, mas viajou e se tornou amiga de alguns piratas durante suas pesquisas.
 
 - **Traumas:**
-A briga com sua irmã mais velha, Umi’e. Umi’e nasceu totalmente pura, sem magia alguma, enquanto Vian’e uma adepta. Vian’e admirava os esforços de sua irmã, mas a mesma queria apenas a admiração de seus pais, que estavam ocupados direcionando Vian’e, uma adolescente bastante rebelde e problemática. 
-Um dia Umi’e armou para cima de Vian’e, manipulando a ração dos cavalos de seu pai antes que Vian’e as distribuísse no estábulo. Umi’e planejava apenas adormecê-los para que perdessem a corrida que estavam para disputar, mas a dose alta acabou matando dois dos cavalos. Vian’e foi repreendida por seus pais e ficou sem poder fazer nada que gostava até “se provar valer a pena o esforço”, palavras de sua mãe. Numa discussão, Vian’e descobriu o que ocorrera e desejou, em voz alta, que Umi’e fosse embora para sempre. No outro dia, ela já não estava mais lá. Vian’e passou a vida procurando sua irmã e nunca a encontrou.
+A briga com sua irmã mais velha, Umi’e. Umi’e nasceu uma humana pura, sem magia alguma, enquanto Vian’e uma adepta. Vian’e admirava os esforços de sua irmã, mas a mesma queria apenas a admiração de seus pais, que estavam ocupados direcionando Vian’e, uma adolescente bastante rebelde e problemática. 
+Um dia Umi’e armou para cima de Vian’e, manipulando a ração dos cavalos de seu pai antes que Vian’e as distribuísse no estábulo. Umi’e planejava apenas adormecê-los para que perdessem a corrida que estavam para disputar, mas a dose alta acabou matando dois dos cavalos. Vian’e foi repreendida por seus pais e teve que passar por um centro de reeducação, tendo que “se provar valer a pena o esforço”, palavras de sua mãe. Numa discussão, Vian’e descobriu o que ocorrera e desejou, em alto e bom tom, que Umi’e sumisse e nunca mais aparecesse. No outro dia, ela já não estava mais lá. Vian’e passou a vida procurando sua irmã e nunca a encontrou.
 
 - **Conforto:**
 Gostava de escrever seus sentimentos em cartas pois ajudava com os problemas. Conversas noturnas e aventuras com Irandel (Corum) Henocke, seu marido, também a ajudavam.
@@ -84,7 +85,7 @@ Gostava de escrever seus sentimentos em cartas pois ajudava com os problemas. Co
 Nenhuma.
 
 - **Alergias:**
-Nenhuma
+Ironicamente, tinha alergia à seiva das mangueiras em que os Darin-Rosados viviam.
 
 - **Pessoas mais próximas:**
 -Brish'e Henocke.
