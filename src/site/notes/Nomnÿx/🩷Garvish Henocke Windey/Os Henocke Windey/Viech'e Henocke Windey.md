@@ -10,7 +10,7 @@ Informações Gerais
 -Data de nascimento: 02/12/1252.
 -Idade: (15)
 -Tipo sanguíneo: A+
--Signo: Leão 
+-Signo: Sagitário
 -Sexo biológico: Feminino
 -Orientação sexual: Bissexual
 -Idiomas: Cominun.

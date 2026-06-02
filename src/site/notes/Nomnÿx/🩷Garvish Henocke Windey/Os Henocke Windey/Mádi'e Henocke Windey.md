@@ -12,7 +12,7 @@ Mádi’e Henocke Windey
 -Data de nascimento: 10/12/1249.
 -Idade: (18)
 -Tipo sanguíneo: A-
--Signo: Aquário 
+-Signo: Sagitário 
 -Sexo biológico: Mulher
 -Orientação sexual: Héterossexual
 -Idiomas: Cominun.

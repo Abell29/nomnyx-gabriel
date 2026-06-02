@@ -3,4 +3,4 @@
 ---
 
 ![6b612459269bd81d30dee9748e758cb5.jpg](/img/user/_Assets/6b612459269bd81d30dee9748e758cb5.jpg)
-Noleth Henocke Windey, gethro de 27 anos; nascido em 03 de dezembro de 1247. Semi de aberan
+Noleth Henocke Windey, gethro de 27 anos; nascido em 03 de dezembro de 1247, Sagitário. Semi de aberan

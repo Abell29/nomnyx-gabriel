@@ -12,7 +12,7 @@
 
 - Idade: Faz 16 em 1272 | Faz 18 em 1274
 
-- Signo: 
+- Signo: Libra
 
 - Data de falecimento: 
   
