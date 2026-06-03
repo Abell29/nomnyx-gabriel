@@ -22,5 +22,5 @@ Enquanto Lyeth'e dissecava a brutalidade das maldições, Phalind'e escolheu foc
 - **1246 (aos 24 anos):** Afasta-se definitivamente do combate tático para assumir o manto de pesquisadora oficial, iniciando suas viagens pelo mundo com o objetivo exclusivo de estudar o comportamento e a existência dos espíritos.
 - **1249 (aos 27 anos):** Conhece Lethásia e seu líder; um fada chamado Elyon'thir.
 - **1251 (aos 29 anos):** Casa-se com Elyon'thir.
-- **1255 (aos 33 anos):** Dá à luz ao seu primogênito, [...].
-- **1256 (aos 34 anos):** Dá à luz à sua filha, [...].
+- **1255 (aos 33 anos):** Dá à luz ao seu primogênito, [[Nomnÿx/🩷Garvish Henocke Windey/Os Henocke/Ancestrais/Henocke Amakir/Morien'thir Henocke Amakir\|Morien'thir Henocke Amakir]]]
+- **1256 (aos 34 anos):** Dá à luz à sua filha, [[Nomnÿx/🩷Garvish Henocke Windey/Os Henocke/Ancestrais/Henocke Amakir/Macari'e Henocke Amakir\|Macari'e Henocke Amakir]].

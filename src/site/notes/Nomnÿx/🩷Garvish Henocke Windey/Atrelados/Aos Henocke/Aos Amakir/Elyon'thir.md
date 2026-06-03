@@ -32,5 +32,5 @@ Para Elyon'thir, essa dinâmica foi revolucionária. Pela primeira vez, alguém 
 - **1219:** O espírito condensa sua energia e toma forma física, tornando-se a fada Elyon'thir e assumindo a liderança de Lethásia.
 - **1249 (aos 30 anos):** Recebe a visita de Phalind'e. Através de longas entrevistas e conversas, os dois se aproximam profundamente, culminando em um romance.
 - **1251 (aos 32 anos):** Casa-se com Phalind'e.
-- **1255 (aos 36 anos):** Torna-se pai com o nascimento de seu primogênito, [...].
-- **1256 (aos 37 anos):** Nascimento de sua filha, [...].
+- **1255 (aos 36 anos):** Torna-se pai com o nascimento de seu primogênito, [[Nomnÿx/🩷Garvish Henocke Windey/Os Henocke/Ancestrais/Henocke Amakir/Morien'thir Henocke Amakir\|Morien'thir Henocke Amakir]].
+- **1256 (aos 37 anos):** Nascimento de sua filha, [[Nomnÿx/🩷Garvish Henocke Windey/Os Henocke/Ancestrais/Henocke Amakir/Macari'e Henocke Amakir\|Macari'e Henocke Amakir]].

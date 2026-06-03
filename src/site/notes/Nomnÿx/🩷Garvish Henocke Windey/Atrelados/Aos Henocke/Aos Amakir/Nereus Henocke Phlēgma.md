@@ -15,4 +15,4 @@ Nereus é um acadêmico astuto de uma das ramificações da família Phlēgma, d
 ### **Linha do Tempo Pessoal:**
 - **1239 (aos 24 anos):** Enfrentando um bloqueio em suas pesquisas alquímicas de campo, contrata a caçadora Tessyl'e como sua escolta. 
 - **1244 (aos 27 anos):** Casa-se com Tessyl'e, consolidando a união definitiva.
-- **1249 (aos 32 anos):** Torna-se pai da sua filha com Tessyl'e, [...].
+- **1249 (aos 32 anos):** Torna-se pai da sua filha com Tessyl'e, Leviath'e.

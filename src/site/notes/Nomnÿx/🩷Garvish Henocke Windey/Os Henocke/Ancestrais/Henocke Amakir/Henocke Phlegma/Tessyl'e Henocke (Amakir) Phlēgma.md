@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/nomnyx/garvish-henocke-windey/os-henocke/ancestrais/henocke-amakir/henocke-phlegma/tessyl-e-henocke-amakir-phlegma/","dg-note-properties":{}}
 ---
 
-![Tessyl'e Henocke Amakir.png](/img/user/_Assets/Tessyl'e%20Henocke%20Amakir.png)
+![Tessyl'e Henocke Amakir.png\|351](/img/user/_Assets/Tessyl'e%20Henocke%20Amakir.png)
 ### **Tessyl'e Henocke (Amakir) Phlēgma**
 *Significado: Ave nebulosa.*
 **Humana Impura.**
@@ -19,4 +19,4 @@ Embora lute como o pai, o método com o qual ela executa seus contratos carrega 
 - **1225 (aos 8 anos):** Inicia seu treinamento intensivo sob a tutela de Kaery, aprendendo a rastrear, combater e aplicar na prática os experimentos alquímicos desenvolvidos por Lyeth'e.
 - **1237 (aos 20 anos):** É reconhecida oficialmente parte dos caçadores de maldições
 - **1244 (aos 27 anos):** Casa-se com [[Nomnÿx/🩷Garvish Henocke Windey/Atrelados/Aos Henocke/Aos Amakir/Nereus Henocke Phlēgma\|Nereus Henocke Phlēgma]].
-- **1249 (aos 32 anos):** Dá à luz ao seu filho, [...].
+- **1249 (aos 32 anos):** Dá à luz a sua filha [[Nomnÿx/🩷Garvish Henocke Windey/Os Henocke/Ancestrais/Henocke Amakir/Henocke Phlegma/Leviath'e Henocke Phlēgma\|Leviath'e Henocke Phlēgma]].
