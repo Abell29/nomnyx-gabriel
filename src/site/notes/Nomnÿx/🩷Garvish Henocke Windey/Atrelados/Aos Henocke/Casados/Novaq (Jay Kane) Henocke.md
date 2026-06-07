@@ -3,4 +3,4 @@
 ---
 
 ![Novaq (Jhely Kane) Henocke.jpg](/img/user/_Assets/Novaq%20(Jhely%20Kane)%20Henocke.jpg)
-## Novaq (Jhelyo Kane) Henocke
+## Novaq (Jay Kane) Henocke

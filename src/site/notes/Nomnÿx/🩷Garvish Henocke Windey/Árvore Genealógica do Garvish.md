@@ -8,8 +8,8 @@ Calida'e Venus + ???
 |---|---Lady Aphrodi'te Venus + ???  
 |---|---|---Lady Opheli'e + Deakim Alighieri  
 |---|---|---|---Lady Circ'e  
-|---|---|---|---Lady Heb'e + ???  
-|---|---|---|---|---Salém Henocke + ???  
+|---|---|---|---Lady Heb'e + ??? (Ex-marido) / ???
+|---|---|---|---|---Salém Henocke (filho do ex-marido) + ???  
 |---|---|---|---|---|---Brish'e Henocke + Novaq Henocke (Jay Kane)  
 |---|---|---|---|---|---|---Umi'e Henocke  
 |---|---|---|---|---|---|---Vian'e Henocke + Irandel Henocke (Corum)  
@@ -64,8 +64,88 @@ Calida'e Venus + ???
 |---|---Aurora'e Korè Venus
 
 
-
-
-
-
-
+### Adeptos/Sidhes
+Lady Aphrodit'e 
+Aurora'e
+Lady Opheli'e
+Lady Heb'e
+Vian'e Henocke
+Kiran'e Henocke
+Kijakio Henocke
+Azibrand Henocke
+Sercali'e Henocke
+Avra Henocke Windey
+Mádi'e Henocke Windey
+Nell'e Henocke Windey
+Garvish'e Henocke Windey
+### Semi-adeptos/Semi-sidhes
+Lady Circ'e
+Salém de Henocke
+Cindel Henocke
+Ormei'e Henocke Cadmus
+Draxos Henocke Cadmus
+Jettir Henocke
+Vexia Henocke
+Ilvanheil Henocke
+Zurihel'e Henocke
+Asdhali'e Henocke
+Sula'e Henocke Windey Yarden
+Noleth Henocke Windey
+Tael Henocke Windey
+### Impuros/gethros
+Marido da Lady Aphrodit'e
+Deakim Alighieri
+Marido da Lady Heb'e
+Brish'e Henocke
+Novaq Henocke
+Irandel Henocke
+Kinshi Henocke
+Albahi'e Henocke
+Rhyseon Henocke
+Tralen Henocke Cadmus
+Reveri'e Henocke Cadmus
+Dagerth Henocke Cadmus
+Crysanthe Morvaine
+Lysant Mornaire
+Eosian Henocke Cadmus
+Krish Henocke Cadmus
+Alect'e Henocke Cadmus
+Hellebore Henocke
+Korynd Riftaria
+Ykande Henocke
+Solkar Henocke
+Kallaris'e Henocke
+Morwen'e Henocke
+Kazian Henocke
+Perelli'e Henocke
+Nyxander Henocke
+Oltuz Henocke Windey
+Alladry Henocke Windey
+Hulan'e Henocke Windey
+Cilkan Henocke Windey
+Cantriz'e Henocke Windey
+Denux Henocke Windey
+Friana Henocke Windey
+Yulli'e Henocek Windey
+Kimbell'e Henocke Windey
+Killes Kapew Isson
+Amerus Henocke Windey
+Leetsa'e Henocke Windey
+Félaro Frin Anox
+Rika'e Henocke Windey
+Tessa Ileon Vaston
+Dervon Henocke Windey
+Markez Henocke Windey Yarden
+Maliz'e Henocke Windey Yarden
+Zanon Henocke Windey Yarden
+Viech'e Henocke Windey
+### Puros
+Ex-marido de Heb'e e Pai de Salém
+Esposa de Salém
+Umi'e Henocke
+Dagan Grav
+Rosh Henocke Windey
+Yamani'e Henocek Windey
+Aimee Henocke Windey-Ileon Vaston
+Orima Vaston Asan Ileon
+Navere Henocke Windey Bulsan
