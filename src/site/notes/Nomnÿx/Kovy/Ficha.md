@@ -5,7 +5,7 @@
 ## Primeiro Ano
 
 **STATUS**
-**| Nível 2 | Nomnyx 1 | Espírito |**
+**| Nível 2 | Nomnyx 1 | "Espírito" |**
 Guarda: 5
 Resistência à Dano: 0
 Integridade: 15/15
@@ -77,10 +77,10 @@ Por Nomnÿx
 _Nível 1_
 Ganha a capacidade de sentir naturalmente resquícios de mana. De acordo com o mestre, você pode saber se existe algum efeito mágico em algum lugar. Além disso, consegue saber a capacidade mágica de alguma pessoa ou coisa, analisando seu feitos mágicos, conhecendo exatamente algo do seu nível de Nomnÿx ou menor, e de resto apenas vendo que é além de suas capacidades.
 
-## Segundo Ano
+## Terceiro Ano
 
 **STATUS**
-**| Nível 6 | Nomnyx 3 | "Espírito |**
+**| Nível 6 | Nomnyx 3 | "Espírito" |**
 Guarda: 5
 Resistência à Dano: 0
 Integridade: 50/50

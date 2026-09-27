@@ -14,7 +14,7 @@ Informações Gerais
 -Sexo biológico: Feminino
 -Orientação sexual: Bissexual
 -Idiomas: Cominun.
--Trabalho: (Pretende trabalhar com joalheria mágica)
+-Trabalho: Trabalha com a 
 -Passatempo: Joga bruxo corajoso e ajuda em algumas escavações arqueológicas da família.
 -Comidas favoritas: Bolo de carne recheado com 4 queijo. Pode ser qualquer carne e quaisquer quatro tipo de queijos diferentes.
 -Comidas que não comeria: Chá, qualquer um. Ela odeia todos os tipos igualmente.

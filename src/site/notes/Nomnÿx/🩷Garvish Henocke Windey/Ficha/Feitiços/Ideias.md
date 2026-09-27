@@ -8,6 +8,4 @@ Ampulheta
 Matéria Estranha
 Molde de Alteração 
 Mob Psycho 100
-Essência escondida no Kovy
-Tempesta
 Empréstimo de magia & roubo de magia 

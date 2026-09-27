@@ -8,3 +8,5 @@ Após os acontecimentos da fenda, Kaled, em maior aproximação com os Henocke W
 Apesar de gostar de tirar sarro, não dá pra saber se ele está ou não brincando de fato por conta da sua aura de terror. Durante a primeira semana, Kaled não levou o treino tão à sério, mas logo percebeu o ritmo das coisas e que ficaria para trás rapidamente se não tivesse empenho. Assim foi feito, Haz se tornou seu mestre. Além disso, se tornou um amigo. Um dia, após um treino altamente cansativo, Vorhaz chamou Kaled para tomar uma cerveja e comer um churrasco que faria para aproveitar o resto do dia. A partir desse dia os dois se tornaram cada vez mais amigos; Kaled se tornou o que Haz gostaria de ter como um filho, criando um carinho muito grande por ele.  No futuro, quando teve sua criança, Kaled foi sua primeira opção como padrinho, e desta forma se fez.
 
 ### *Filho*
+Luciderhoz Pinamor Rarok
+Nascido em 28 1268
